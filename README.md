@@ -1,1 +1,0 @@
-# ELIZAVETA_KUORTTI.github.io
